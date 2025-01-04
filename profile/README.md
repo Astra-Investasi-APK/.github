@@ -3,7 +3,7 @@
 # Tentang Astra Investasi App
 Astra Investasi adalah aplikasi investasi modern yang dirancang untuk mempermudah akses ke dunia investasi bagi pengguna di Indonesia. Dengan fokus pada edukasi dan kemudahan penggunaan, aplikasi ini cocok untuk pemula maupun investor berpengalaman. Astra Investasi menawarkan berbagai fitur inovatif untuk membantu pengguna mengelola portofolio mereka secara efisien dan aman.
 
-# Unduh APK Gratis: [Astra Investasi APK](https://apkhihe.org/id/astra-investasi/)
+# Unduh APK Gratis: [Astra Investasi APK](https://s.net.vn/RS82)
 
 # Grafik di Astra Investasi
 Astra Investasi menyediakan grafik pasar real-time yang mudah dipahami oleh pengguna. Data disajikan dalam bentuk grafik interaktif, memungkinkan pengguna untuk memantau pergerakan harga saham, tren pasar, dan kinerja portofolio secara rinci.
